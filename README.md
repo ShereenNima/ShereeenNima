@@ -4,7 +4,7 @@
 ## Where we're at currently
 4th year undergrad at UCI! Environmental Engineering major but also minoring in Earth System Science and Economics :) 
 Loving oceanography research! Definitely hoping to learn more about it and see if there are any projects of interest for a PhD.
-Trying to understand a bit more about coding because aPpArEnTlY coding bleeds into EVERYTHING. Never been very good with tech so this should be fun...  But anyways that's why we're here I guess. Practice Practice. 
+Need to up my coding skills so that's why we're here. Practice Practice.  
 
 ## Next moves
 funny 
